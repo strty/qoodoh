@@ -1,1 +1,5 @@
 # QOODOH
+- [📖 Portfolio](https://strty.qoodoh.co)
+- [📝 note](https://note.mu/satorutoya)
+- [🎬 YouTube](https://www.youtube.com/channel/UCwU9mKugXebSRm8ob8Q7_3g)
+- [🕊 Twitter](https://twitter.com/satorutoya)
